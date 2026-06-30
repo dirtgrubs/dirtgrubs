@@ -39,7 +39,7 @@ Newmann #1 forever
 ![alt text](https://i.ibb.co/Vpbcq2wF/stamp-19.gif "Sam - ICarly")
 ![alt text](https://i.ibb.co/5Xcg3f4d/stamp-25.gif "Benny - The Lego Movie") 
 
-![alt text](https://i.ibb.co/LzmyXfYb/stamp-26.gif "Dee Reynolds - Always Sunny")
 
-![alt text](https://i.ibb.co/JwbY03RJ/stamp-21.gif "Andy - Parks and Rec") ![alt text](https://i.ibb.co/hFdRk0r2/stamp-22.gif "Abed - Community") ![alt text](https://i.ibb.co/tgFWGtj/stamp-23.gif "Ryland Grace - PHM")
+
+![alt text](https://i.ibb.co/LzmyXfYb/stamp-26.gif "Dee Reynolds - Always Sunny") ![alt text](https://i.ibb.co/JwbY03RJ/stamp-21.gif "Andy - Parks and Rec") ![alt text](https://i.ibb.co/hFdRk0r2/stamp-22.gif "Abed - Community") ![alt text](https://i.ibb.co/tgFWGtj/stamp-23.gif "Ryland Grace - PHM")
 ![alt text](https://i.ibb.co/S7f0MWmv/stamp-24.gif "Chaos") 
