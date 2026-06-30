@@ -43,3 +43,5 @@ Newmann #1 forever
 
 ![alt text](https://i.ibb.co/LzmyXfYb/stamp-26.gif "Dee Reynolds - Always Sunny") ![alt text](https://i.ibb.co/JwbY03RJ/stamp-21.gif "Andy - Parks and Rec") ![alt text](https://i.ibb.co/hFdRk0r2/stamp-22.gif "Abed - Community") ![alt text](https://i.ibb.co/tgFWGtj/stamp-23.gif "Ryland Grace - PHM")
 ![alt text](https://i.ibb.co/S7f0MWmv/stamp-24.gif "Chaos") 
+
+if you've read this far, and want my discord, pls send urs in my strawpage and ill get to you later ^^
