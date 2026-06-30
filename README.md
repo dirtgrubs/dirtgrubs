@@ -14,7 +14,7 @@ Big Charmac fan, I also like MacDennis and Chardee :D
 ### Pacific Rim
 Newmann #1 forever
 
-##Characters that are SOO the me/The KINLIST!!!
+## Characters that are SOO the me/The KINLIST!!!
 
 ![alt text](https://i.ibb.co/JwVTyCt0/stamp.gif "Tom - Eddsworld") ![alt text](https://i.ibb.co/8nDfsJFX/stamp-1.gif "Charlie Kelly - Always Sunny") ![alt text](https://i.ibb.co/rJHg5Gz/stamp-2.gif "Newton Geiszler - Pacific Rim")
 
